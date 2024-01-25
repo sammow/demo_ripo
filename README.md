@@ -2,4 +2,5 @@
 
 
 Saomr text to vew
-sammows wor
+sammows worK 
+and he is the best
